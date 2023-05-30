@@ -1,6 +1,6 @@
 # 💫 About Me:
 🔭 I’m currently working on honing my skills in cybersecurity and exploring various aspects of the field.
-👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
+🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
